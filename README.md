@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @BrPaddle
+- ✨ postgraduate@jnu
 - ✨ undergraduate@gzhu
 - 📫 brpaddle@gmail.com
 
